@@ -1,1 +1,1 @@
-# Osnove-informacione-bezbednosti-
+Napadi na veštačku inteligenciju
